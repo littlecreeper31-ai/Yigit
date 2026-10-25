@@ -1,3 +1,3 @@
 # BOT YİGİT
 EZİK YİĞİT DOLANDIRILDIN AHAHAHHAHAHA MALLLL EŞŞEEKKK
-![bot yiğit scor][(Screenshot_Aves_20261025_115000~2.jpg)(https://littlecreeper31-ai.github.io/Yigit/)]
+![bot yiğit scor](Screenshot_Aves_20261025_115000~2.jpg)
