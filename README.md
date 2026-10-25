@@ -1,3 +1,3 @@
 # BOT YİGİT
 EZİK YİĞİT DOLANDIRILDIN AHAHAHHAHAHA MALLLL EŞŞEEKKK
-![yigit](Screenshot_Aves_20261025_115000~2.jpg)
+![bot yiğit scor](Screenshot_Aves_20261025_115000~2.jpg)
